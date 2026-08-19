@@ -1,0 +1,2 @@
+# B-rakma-
+Oynamayı bırak
